@@ -1,1 +1,3 @@
-Rupali Lakhanpal
+Rupali Lakhanpal 
+lakhanpr@oregonstate.edu
+
